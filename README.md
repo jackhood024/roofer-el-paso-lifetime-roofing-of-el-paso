@@ -22,7 +22,7 @@ A roof inspection in El Paso is a trained look at shingles, flashing, pipe boots
 
 ## Sun and heat on El Paso roofs
 
-Sun damage on an El Paso roof is slow, steady and certain. Climate figures from the National Weather Service put El Paso near 16 days a year at 100 degrees Fahrenheit or higher, with the sun out for roughly 84 percent of the daylight hours it could be. Asphalt shingles age quicker under heat and sunlight, and the slopes that face the sun show wear before any others. Lifetime reads a roof with that in mind, and when a repair will do, a repair is what gets quoted.
+Sun damage on an El Paso roof is slow, steady and certain. Climate figures from the National Weather Service put El Paso near 26 days a year at 100 degrees Fahrenheit or higher, with the sun out for roughly 84 percent of the daylight hours it could be. Asphalt shingles age quicker under heat and sunlight, and the slopes that face the sun show wear before any others. Lifetime reads a roof with that in mind, and when a repair will do, a repair is what gets quoted.
 
 ## How a roofing job runs from first call to last nail
 
